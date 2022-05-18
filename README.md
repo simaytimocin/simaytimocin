@@ -1,4 +1,4 @@
-### Hi there , I'm Simay 👋
+                                                              # Hi there , I'm Simay 👋
 
 
 - I am 3rd year statistics student at Mimar Sinan Fine Arts University. 📚
